@@ -1,1 +1,1 @@
-This is a new cryptocurrency that is FAST and FREE
+FAST and FREE crypto
