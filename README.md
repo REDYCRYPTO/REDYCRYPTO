@@ -1,1 +1,1 @@
-FAST and FREE crypto
+Free Fast Crypto
